@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on algum projeto grande 
 - 📫 para contato (41) 995873576
 - 😄 Pronouns: ela/dela
-- ⚡ Fun fact:sou morena
+- ⚡ Fun fact:sou estudante do 1 ano so ensino medio 
 
 <!---
 evellynsilva/evellynsilva is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
